@@ -1,1 +1,0 @@
-# rega.github.io
